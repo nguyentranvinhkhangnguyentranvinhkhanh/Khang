@@ -1,2 +1,0 @@
-# Khang
-Vinhkhang20004
